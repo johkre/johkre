@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @johkre
+- 👀 I’m interested in 42
+- 🌱 I’m currently learning +8
+- 💞️ I’m looking to collaborate on -14
+- 📫 How to reach me = 2√33-1,660
